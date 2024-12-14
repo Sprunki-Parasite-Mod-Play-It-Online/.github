@@ -1,6 +1,10 @@
+**[Play Sprunki Parasite Mod](https://www.y9freegames.com/game/sprunki-parasite-mod/)**
+
 # Sprunki Parasite Mod - Play Online Free
 
 Sprunki Parasite Mod is an exciting browser-based game that challenges players to explore a world filled with strange creatures and thrilling gameplay. With this mod, you can enjoy enhanced features and dynamic gameplay directly in your browser—no downloads required!
+
+![Image Alt Text](./profile/my-image.png)
 
 ---
 
