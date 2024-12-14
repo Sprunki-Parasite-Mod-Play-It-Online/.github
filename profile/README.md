@@ -4,6 +4,8 @@
 
 Sprunki Parasite Mod is an exciting browser-based game that challenges players to explore a world filled with strange creatures and thrilling gameplay. With this mod, you can enjoy enhanced features and dynamic gameplay directly in your browser—no downloads required!
 
+![Sprunki Parasite Mod](https://raw.githubusercontent.com/Sprunki-Parasite-Mod-Play-It-Online/.github/779718d4cef80e4df56a0b02a2ba19a484242674/Sprunki-Parasite-Mod.jpg)
+
 ---
 
 ## Overview
