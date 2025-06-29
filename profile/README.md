@@ -1,4 +1,4 @@
-**[Play Sprunki Parasite Mod](https://www.y9freegames.com/game/sprunki-parasite-mod/)** Online at Y9FreeGames
+**[Play Sprunki Parasite Mod](https://www.y9freegames.com/game/sprunki-parasite-mod/)** Online at **[Y9FreeGames](https://y9freegames.s3.eu-north-1.amazonaws.com/index.html)**
 
 # Sprunki Parasite Mod - Play Online Free
 
